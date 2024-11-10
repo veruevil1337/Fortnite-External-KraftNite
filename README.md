@@ -3,6 +3,8 @@ Hello. Today i will be leaking KraftNite fortnite external/driver. It originally
 
 Its pasted from interpreter cause he is a fucking paster. 🤡🤡🤡🤡🤡
 
+I also include warzone steam/apex source.
+
 discord server: https://discord.gg/SC2vK9asza
 
 Discord: kraft_cheese.
