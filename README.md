@@ -9,6 +9,8 @@ discord server: https://discord.gg/SC2vK9asza
 
 Discord: kraft_cheese.
 
+My discord: kxr.veru & std_mutex
+
 Enjoy.
 ![warzonecheatmenu](https://github.com/user-attachments/assets/67fae18f-5a69-4462-bdad-81b0450ccb04)
 ![detectedcheatlol](https://github.com/user-attachments/assets/0179f6ac-d445-4be8-8c65-f9979d6b0a7f)
