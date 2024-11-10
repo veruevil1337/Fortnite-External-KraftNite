@@ -10,6 +10,7 @@ discord server: https://discord.gg/SC2vK9asza
 Discord: kraft_cheese.
 
 My discord: kxr.veru & std_mutex
+Big shoutout for mezze aka dex.70 sending loves from poland for sharing those files. Fuck skull and have a good day/night!
 
 Enjoy.
 ![warzonecheatmenu](https://github.com/user-attachments/assets/67fae18f-5a69-4462-bdad-81b0450ccb04)
